@@ -1,2 +1,0 @@
-# Demomanga.lol
-Selam arkadaşlar
